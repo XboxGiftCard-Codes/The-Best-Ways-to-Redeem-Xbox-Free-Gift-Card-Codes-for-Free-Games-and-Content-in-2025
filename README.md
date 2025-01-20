@@ -4,7 +4,7 @@
 
 At the beginning of 2025, Xbox continues to offer gamers exciting opportunities to expand their gaming experience. Whether you're looking to upgrade your game library, grab premium content, or even get Xbox Game Pass without paying for it, Xbox gift card codes can be a game-changer. **As a special bonus, we’re offering an exclusive free Xbox gift card code to get you started.** Stay with us to learn how you can redeem your Xbox Free Gift Card Code and explore some of the best ways to get more!
 
-### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/amazon/go/)
+### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/xbox/go/)
 
 ## Table of Contents
 
